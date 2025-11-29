@@ -16,3 +16,4 @@ The Earth has not changed. Volcanoes still lie silent beneath our feet, storing 
 We often think of apocalypse as fiction — but in 1815, humanity lived through a real one.
 
 And nothing prevents it from happening again.
+
